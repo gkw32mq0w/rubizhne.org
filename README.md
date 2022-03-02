@@ -37,6 +37,12 @@
 
 [FACEBOOK: Інформаційний портал волонтерського штабу "Україна для захисників"](https://www.facebook.com/groups/997566197546611)
 
+### Допомога:
+
+[Фонд "Повернись живим"](https://savelife.in.ua/)
+
+[Гуманітарна допомога українцям (Liqpay)](https://www.liqpay.ua/uk/checkout/card/checkout_1646238217708748_29180003_b2JUlkRclTp9mFtYZQ1Q). першоджерело - [Сайт НБУ](https://bank.gov.ua/ua/news/all/natsionalniy-bank-vidkriv-rahunok-dlya-gumanitarnoyi-dopomogi-ukrayintsyam-postrajdalim-vid-rosiyskoyi-agresiyi)
+
 ### Новини
 
 [TELEGRAM: Луганский Агент](https://t.me/tvoy_region13) Додан за рекомандацією Сергія Гайдая - [скріншот](/images/proofs/proof_1.png)
