@@ -34,6 +34,19 @@
 
 першоджерело - [сайт privatbank.ua](https://privatbank.ua/news/2022/2/26/1547)
 
+**ОТП Банк** впроваджує кредитні канікули
+
+<span>першоджерело - [сайт www.otpbank.com.ua](https://www.otpbank.com.ua/about/news/399176/)</span>
+
+**Ощадбанк** впроваджує кредитні канікули
+
+першоджерело - [сайт www.oschadbank.ua](https://www.oschadbank.ua/news/osadbank-zaprovadzue-kreditni-kanikuli-dla-fizicnih-osib)
+
+
+**AlfaBank** впроваджує кредитні канікули
+
+першоджерело - [сайт help.alfabank.ua](https://help.alfabank.ua/hc/uk-ua/articles/4478116141074-%D0%AF%D0%BA%D1%96-%D1%83%D0%BC%D0%BE%D0%B2%D0%B8-%D0%BA%D1%80%D0%B5%D0%B4%D0%B8%D1%82%D0%BD%D0%B8%D1%85-%D0%BA%D0%B0%D0%BD%D1%96%D0%BA%D1%83%D0%BB-%D0%B7%D0%B0-%D0%B2%D1%81%D1%96%D0%BC%D0%B0-%D0%BA%D1%80%D0%B5%D0%B4%D0%B8%D1%82%D0%BD%D0%B8%D0%BC%D0%B8-%D0%BA%D0%B0%D1%80%D1%82%D0%BA%D0%B0%D0%BC%D0%B8-%D1%82%D0%B0-%D0%BA%D1%80%D0%B5%D0%B4%D0%B8%D1%82%D0%B0%D0%BC%D0%B8-%D0%B7-1-%D0%B1%D0%B5%D1%80%D0%B5%D0%B7%D0%BD%D1%8F-2022-%D1%80%D0%BE%D0%BA%D1%83-)
+
 
 ==========================================================
 
